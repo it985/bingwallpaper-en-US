@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-02 | [Skeleton figures (calacas) dressed up for Día de los Muertos celebrations in Mexico (© Amelia Fuentes Marin/Getty Images)](https://global.bing.com/th?id=OHR.Calacas_EN-US6430903741_UHD.jpg) 
+
 2022-10-28 | [Bridge of Sighs in Venice, Italy (© Doug Pearson/Alamy)](https://cn.bing.com/th?id=OHR.BridgeofSighs_EN-US5335369208_UHD.jpg) 
 
 2022-10-27 | [Brocken spectre in Central Balkan National Park, Bulgaria (© Maya Karkalicheva/Getty Images)](https://cn.bing.com/th?id=OHR.BrockenSpecter_EN-US5247366251_UHD.jpg) 
