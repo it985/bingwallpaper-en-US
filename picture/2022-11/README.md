@@ -1,5 +1,5 @@
 ## Bing Wallpaper (2022-11)
-![](https://global.bing.com/th?id=OHR.Calacas_EN-US6430903741_UHD.jpg&w=1000)Today: [Skeleton figures (calacas) dressed up for Día de los Muertos celebrations in Mexico (© Amelia Fuentes Marin/Getty Images)](https://global.bing.com/th?id=OHR.Calacas_EN-US6430903741_UHD.jpg)
+![](https://global.bing.com/th?id=OHR.Deities_EN-US8555427337_UHD.jpg&w=1000)Today: [Depiction of deities from the Tomb of Tutankhamun at the Egyptian Museum, Cairo, Egypt (© Stefan Lippmann/Universal Images Group via Getty Images)](https://global.bing.com/th?id=OHR.Deities_EN-US8555427337_UHD.jpg)
 |      |      |      |
 | :----: | :----: | :----: |
-|![](https://global.bing.com/th?id=OHR.Calacas_EN-US6430903741_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2022-11-02 [download 4k](https://global.bing.com/th?id=OHR.Calacas_EN-US6430903741_UHD.jpg)|
+|![](https://global.bing.com/th?id=OHR.Deities_EN-US8555427337_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2022-11-05 [download 4k](https://global.bing.com/th?id=OHR.Deities_EN-US8555427337_UHD.jpg)|![](https://global.bing.com/th?id=OHR.Calacas_EN-US6430903741_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2022-11-02 [download 4k](https://global.bing.com/th?id=OHR.Calacas_EN-US6430903741_UHD.jpg)|
