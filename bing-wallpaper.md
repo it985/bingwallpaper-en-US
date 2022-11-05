@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-06 | [Tigh Mor Trossachs on Loch Achray, Scotland (© Fortunato Gatto/eStock Photo)](https://global.bing.com/th?id=OHR.Trossachs_EN-US0183507678_UHD.jpg) 
+
 2022-11-05 | [Depiction of deities from the Tomb of Tutankhamun at the Egyptian Museum, Cairo, Egypt (© Stefan Lippmann/Universal Images Group via Getty Images)](https://global.bing.com/th?id=OHR.Deities_EN-US8555427337_UHD.jpg) 
 
 2022-11-02 | [Skeleton figures (calacas) dressed up for Día de los Muertos celebrations in Mexico (© Amelia Fuentes Marin/Getty Images)](https://global.bing.com/th?id=OHR.Calacas_EN-US6430903741_UHD.jpg) 
