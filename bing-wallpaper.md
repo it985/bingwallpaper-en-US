@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-04 | [Miami Beach, Florida (© Matteo Colombo/Getty Images)](https://global.bing.com/th?id=OHR.MiamiDT_EN-US0878462019_UHD.jpg) 
+
 2022-12-03 | [Tlikakila River Delta in Lake Clark National Park, Alaska (© Dawn Wilson Photography/Getty Images)](https://global.bing.com/th?id=OHR.BraidedRiverDelta_EN-US0693594934_UHD.jpg) 
 
 2022-11-28 | [Cecropia leaf atop lobster claw petals, Mexico (© Gerry Ellis/Minden Pictures)](https://global.bing.com/th?id=OHR.Cecropia_EN-US9602789937_UHD.jpg) 
